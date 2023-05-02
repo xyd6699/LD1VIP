@@ -26,4 +26,4 @@
 
 
 ### 分享精彩体育赛事，尽在乐动体育！<br>
-### 请收藏保存本网址：[github.com/xyd6699/ldvip](https://github.com/xyd6699/ldvip)<br>
+### 请收藏保存本网址：[github.com/xyd6699/LD1VIP](https://github.com/xyd6699/LD1VIP)<br>
