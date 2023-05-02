@@ -4,9 +4,9 @@
 ### 请复制以下域名到手机浏览器打开(如遇域名无法打开，请根据机型下载APP）
 ### 注册邀请码：4683619（必填）
 
-### [ld3.me](http://ld3.me)<br>
+### [LD3.me](http://ld3.me)<br>
 
-### [ld1.vip](https://ld1.vip)<br>
+### [LD1.vip](https://ld1.vip)<br>
 ### 不限IP，支持USDT存款，投注，取款，无需实名！（领取福利永久微信：779925995）
 ### [点击查看优惠活动](https://user-images.githubusercontent.com/117981406/235637301-773c9c1e-62a7-46e0-9be3-ec06612e21cb.png)
 ### 安卓APP下载地址：
