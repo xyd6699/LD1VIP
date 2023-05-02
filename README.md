@@ -22,7 +22,7 @@
 
 
 # 不限IP，支持USDT存款，投注，取款，无需实名！
-[点击查看优惠活动](https://user-images.githubusercontent.com/117981406/235637301-773c9c1e-62a7-46e0-9be3-ec06612e21cb.png)
+### 点击查看优惠活动：(https://user-images.githubusercontent.com/117981406/235637301-773c9c1e-62a7-46e0-9be3-ec06612e21cb.png)
 
 
 ### 分享精彩体育赛事，尽在乐动体育！<br>
