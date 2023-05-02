@@ -7,7 +7,8 @@
 ### [ld3.me](http://ld3.me)<br>
 
 ### [ld1.vip](https://ld1.vip)<br>
-
+# 不限IP，支持USDT存款，投注，取款，无需实名！
+### [点击查看优惠活动](https://user-images.githubusercontent.com/117981406/235637301-773c9c1e-62a7-46e0-9be3-ec06612e21cb.png)
 ### 安卓APP下载地址：
 
 ### [安卓下载地址一](https://appdownload.hxjmc.com/ldapp/ld.apk)<br> 
@@ -19,11 +20,6 @@
 ### [苹果原生APP下载地址一](https://xyd6699.github.io/1/)<br>  
 ### [苹果原生APP下载地址二](https://xyd6699.github.io/-APP-2/)<br> 
 ### [苹果原生APP下载地址三](https://xyd6699.github.io/app3/)<br>
-
-
-# 不限IP，支持USDT存款，投注，取款，无需实名！
-### [点击查看优惠活动](https://user-images.githubusercontent.com/117981406/235637301-773c9c1e-62a7-46e0-9be3-ec06612e21cb.png)
-
 
 ### 分享精彩体育赛事，尽在乐动体育！<br>
 ### 请收藏保存本网址：[github.com/xyd6699/LD1VIP](https://github.com/xyd6699/LD1VIP)<br>
