@@ -1,24 +1,12 @@
-# 乐动体育最新下载地址（2023年3月28日更新）
+# 乐动体育福利地址（领取福利永久微信：779925995）
 
 ### 乐动体育手机H5浏览地址：
-### 请复制以下域名到手机浏览器打开
-### 注册邀请码：4683619
+### 请复制以下域名到手机浏览器打开(如遇域名无法打开，请根据机型下载APP）
+### 注册邀请码：4683619（必填）
 
 ### [ld3.me](http://ld3.me)<br>
 
-### [lddd3.com](https://lddd3.com)<br>
-
-### [ldvip45.com](https://ldvip45.com)<br>
-
-### [ldvip64.com](https://ldvip64.com)<br> 
- 
-### [15ld.vip](https://15ld.vip)<br>
-
-### [18ld.vip](https://18ld.vip)<br>   
- 
-### [22ld.vip](https://22ld.vip)<br> 
-
-### [28ld.vip](https://28ld.vip)<br>
+### [ld1.vip](https://ld1.vip)<br>
 
 ### 安卓APP下载地址：
 
@@ -33,7 +21,9 @@
 ### [苹果原生APP下载地址三](https://xyd6699.github.io/app3/)<br>
 
 
-# 乐动体育回家页简介
+# 乐动体育回家页简介!
+[迎新豪礼4-1备份 8](https://user-images.githubusercontent.com/117981406/235637301-773c9c1e-62a7-46e0-9be3-ec06612e21cb.png)
+
 
 ### 分享精彩体育赛事，尽在乐动体育！<br>
 ### 请收藏保存本网址：[github.com/xyd6699/ldvip](https://github.com/xyd6699/ldvip)<br>
